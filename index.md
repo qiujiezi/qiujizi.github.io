@@ -7,7 +7,7 @@ _更新日期：2020.11.26_
 
 ### 关于我
 
-一个不会讲武汉话的武汉土著（丢人）。目前是家里蹲大学master在读，应该明年年初会去伦敦继续上课。看上去像个二次元，其实连cos都不出的。lo和jk制服也买的不算很多了，反正日常就瞎穿。喜欢玩游戏，偶尔出去玩会化妆臭美自拍。平时是个艰苦的读书人，方向是smart cities和spatial data analysis这种，语言学python和r，有大佬可以带带我我给您拎包啊！
+一个不会讲武汉话的武汉土著（丢人）。目前是家里蹲大学master在读，应该明年年初会去伦敦继续上课。看上去像个二次元，其实连cos都不出的（倒是拍过一次[浴衣](http://b223.photo.store.qq.com/psb?/V10Ku9CI4aQd30/4gS9EMfV85q0J.*z7CADvc9q1DtmBkOflFv632CCISQ!/b/dN8AAAAAAAAA&bo=QAZgCYARQBoRF8Q!&rf=viewer_4)）。[lo](https://photogz.photo.store.qq.com/psc?/V10Ku9CI4aQd30/ruAMsa53pVQWN7FLK88i5sReXM1OLPCH1gpyGeS3sibqNNn5.1RokKwJ7V7IBcvsG.ilHZ6tsluVuKQoFj*7rlBaFGkKmjC3Wwke*.vtFys!/b&bo=QAYcC3AIAA8BCQg!&rf=viewer_4)和[jk制服](http://photogz.photo.store.qq.com/psc?/V10Ku9CI4aQd30/45NBuzDIW489QBoVep5mcQzyJj*Td3vjqTD1yaghLs*1d6MSXK8CGbv8Di2lbfJRiLzdPd8*xOn*JJPdCEdGI7W*NIfqGNDRKB0JQkSwzTI!/b&bo=QAYcC3AIAA8BSUg!&rf=viewer_4)也买的不算很多了，反正日常就瞎穿。喜欢玩游戏，偶尔出去玩会化妆臭美[自拍](http://m.qpic.cn/psc?/V10Ku9CI4aQd30/45NBuzDIW489QBoVep5mcW*rJ06k0MBsTT7hcZOZ2b6zi4kRhmikRa1GQ1BhDxQvBLqk*5IZhZZ3qQtfRT2MtqVIz6bR94wzQx0Jy2IXhyU!/b&bo=AAb.BQAG*gUBWX4!&rf=viewer_4)。平时是个艰苦的[读书人](http://a1.qpic.cn/psc?/V10Ku9CI3pAZio/ruAMsa53pVQWN7FLK88i5morMdIAweeyi9t8ENdtdWxRiSEM0hGXHoa80.3hfbL6vJeqM3X1prO45mUNJ57G.Psagqu1lLWjS2LahCxzlNE!/b&ek=1&kp=1&pt=0&bo=2gR8BNoEfAQRECc!&tl=3&vuin=1049054487&tm=1606399200&sce=60-4-3&rf=viewer_311)，方向是smart cities和spatial data analysis这种，语言学python和r，有大佬可以带带我我给您拎包啊！
 
 ### 一些链接和账号啥的
 
