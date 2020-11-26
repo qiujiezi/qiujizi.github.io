@@ -4,6 +4,8 @@ _更新日期：2020.11.26_
 
 主要可能就是个人简介还有游戏账号啥的汇总嘿嘿，本来只是想搞个认真一点的微博置顶，但是微博置顶不能超链接也不能方便编辑，就想着搞个网页好了，编辑起来也方便！
 
+![](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5l*GyoeBeJwiBb0QwjXomDi8kuuZx.12yU0Jbngn4E8DVOFrSpR*YS2NiX.UsdVn19.stC7KQhBcUz75QTDMdR4!/b&ek=1&kp=1&pt=0&bo=QALJAEACyQADKQw!&tl=1&vuin=2940155947&tm=1606399200&sce=60-2-2&rf=viewer_4 "先发张自拍臭个美")
+
 （友情提示，由于超链接较多，建议使用电脑浏览器，右键-在新标签页打开，来查看超链接。另外，微信的浏览器可能打不开超链接，qq的可以。）
 
 ### 关于我
