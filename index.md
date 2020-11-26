@@ -18,7 +18,7 @@ _更新日期：2020.11.26_
 
 Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （以前更新过一些手账、少女前线、PCR相关的视频，现在很久没更新啦）
 
-Steam: [秋芥子](https://steamcommunity.com/profiles/76561198375050008/)（欢迎加我好友，我好友好少噢）
+Steam: [414784280](https://steamcommunity.com/profiles/76561198375050008/)（欢迎加我好友，我好友好少噢）
 
 Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没玩了，果咩纳塞）
 
