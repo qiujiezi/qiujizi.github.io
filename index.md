@@ -36,3 +36,6 @@ Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没�
 - LOL 艾欧尼亚（不放id了战绩太菜了不好意思给人看）
 - 明日方舟：[秋芥子様#9557](http://m.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5jbo.hJ4F.SqQjbBpSqHcKdnml4dxe7hHQ*LrlQA7ydHtORZ.DvW0hN5tqMB.rCOpjlKu2lpZmOvE4KZrO6rOMY!/b&bo=BAXSAgQF0gIDCSw!&rf=viewer_4)
 - 少女前线 ios：[秋芥子様](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5gZ1dS75V3jv*1jFlonppiNtKCNGolfNHE1LG75f4FZFzHKD7J1wxo.T0gf*mBo4WANFCjZ7cP5cCcsjDNXQSf0!/b&ek=1&kp=1&pt=0&bo=*we*BP8HvwQBKQ4!&tl=3&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4)
+
+### 联系方式
+参考[朋友建议](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5oaHnFlzBsu9dB8vonckrq0QCsKSNNbRxw.Mc4srbCvMMdIDeRvKLcEVOWSLfuaKxrAIuqpmxClYXXaBslHzEY4!/b&ek=1&kp=1&pt=0&bo=PwQGBD8EBgQBGT4!&tl=3&vuin=2940155947&tm=1606399200&sce=60-2-2&rf=viewer_4)，想联系我的可以发邮件到：1049054487@qq.com
