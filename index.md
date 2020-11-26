@@ -1,37 +1,22 @@
-## Welcome to GitHub Pages
+## 欢迎来到偶的QQ空间（误）
 
-You can use the [editor on GitHub](https://github.com/qiujiezi/qiuqiu.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+主要可能就是个人简介还有游戏账号啥的汇总嘿嘿，本来只是想搞个认真一点的微博置顶，但是微博置顶不能超链接也不能方便编辑，就想着搞个网页好了，编辑起来也方便！
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### 个人介绍
 
-### Markdown
+### 一些链接
+微博：[@秋芥子](https://weibo.com/fighting51?topnav=1&wvr=6&topsug=1&is_all=1)
+Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （以前更新过一些手账、少女前线、PCR相关的视频，现在很久没更新啦）
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### 游戏相关
 
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/qiujiezi/qiuqiu.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+我玩游戏很杂，而且都是周期性的，一周沉迷一个这样，而且都挺菜的（
+现在在玩的：
+- PCR国服：Akiko （虽然这游戏还没有好友系统）工会：稚年
+- 雀魂：60494110 （很菜，初心三这样）
+- 
+以前沉迷过现在已经不怎么玩了的（但是以后可能会继续玩）：
+- 炉石传说：
+- LOL 艾欧尼亚（不放id了战绩太菜了不好意思给人看）
+- 明日方舟：[秋芥子様#9557](https://github.com/qiujiezi/image/blob/main/%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9F.png?raw=true)
+- 少女前线 ios：秋芥子様
