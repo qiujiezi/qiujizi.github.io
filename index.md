@@ -7,9 +7,9 @@ _更新日期：2020.11.26_
 
 ### 关于我
 
-一个不会讲武汉话的武汉土著（丢人）。目前是家里蹲大学master在读，应该明年年初会去伦敦继续上课。
+一个不会讲武汉话的武汉土著（丢人）。目前是家里蹲大学master在读，应该明年年初会去伦敦继续上课。看上去像个二次元，其实连cos都不出的。lo和jk制服也买的不算很多了，反正日常就瞎穿。喜欢玩游戏，偶尔出去玩会化妆臭美自拍。平时是个艰苦的读书人，方向是smart cities和spatial data analysis这种，语言学python和r，有大佬可以带带我我给您拎包啊！
 
-### 一些链接
+### 一些链接和账号啥的
 
 微博：[@秋芥子](https://weibo.com/fighting51?topnav=1&wvr=6&topsug=1&is_all=1)
 
@@ -17,6 +17,7 @@ Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （以前更新过�
 
 Steam: [akiakutaji](https://steamcommunity.com/profiles/76561198375050008/)（欢迎加我好友，我好友好少噢）
 
+Switch：SW-1444-6487-3118
 
 ### 游戏相关
 
