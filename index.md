@@ -36,7 +36,7 @@ Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没�
 以前沉迷过现在已经不怎么玩了的（但是以后可能会继续玩）：
 
 - 炉石传说：秋芥子#5235（之前是猎人快攻分奴，现在偶尔上去打打冒险模式）
-- 百闻牌：（疫情期间最爱的游戏之一，每天疯狂上分，后来也没怎么玩了）
+- 百闻牌：莉丝特秋酱（疫情期间最爱的游戏之一，每天疯狂上分，后来也没怎么玩了）
 - LOL 艾欧尼亚（不放id了战绩太菜了不好意思给人看）喜欢[S7S8时候的RNG](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcUg2Vqp*lwVgaLvMHcqt6H*VZibdnf5nvo8.0OuenFebk8jUmGLIOdbXUAvjup*jfu2SdIqbH2lwKAxPd5kZ9kM!/r)，去上海看了[春季赛](https://weibo.com/1928723543/G5kxUEWGm?from=page_1005051928723543_profile&wvr=6&mod=weibotime&type=comment#_rnd1606401545421)，还有[粉丝采访](https://weibo.com/5756404150/G6zL7mrjr?from=page_1005055756404150_profile&wvr=6&mod=weibotime&type=comment)（在25秒左右）
 - 明日方舟：[秋芥子様#9557](http://m.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5jbo.hJ4F.SqQjbBpSqHcKdnml4dxe7hHQ*LrlQA7ydHtORZ.DvW0hN5tqMB.rCOpjlKu2lpZmOvE4KZrO6rOMY!/b&bo=BAXSAgQF0gIDCSw!&rf=viewer_4)
 - 少女前线 ios：[秋芥子様](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5gZ1dS75V3jv*1jFlonppiNtKCNGolfNHE1LG75f4FZFzHKD7J1wxo.T0gf*mBo4WANFCjZ7cP5cCcsjDNXQSf0!/b&ek=1&kp=1&pt=0&bo=*we*BP8HvwQBKQ4!&tl=3&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4)
