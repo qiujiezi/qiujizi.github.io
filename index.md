@@ -1,6 +1,6 @@
 ## 欢迎来到偶的QQ空间（误）
 
-_更新日期：2020.11.26_
+_更新日期：2020.11.27_
 
 主要可能就是个人简介还有游戏账号啥的汇总嘿嘿，本来只是想搞个认真一点的微博置顶，但是微博置顶不能超链接也不能方便编辑，就想着搞个网页好了，编辑起来也方便！
 
@@ -18,13 +18,17 @@ _更新日期：2020.11.26_
 
 Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （以前更新过一些手账、少女前线、PCR相关的视频，现在很久没更新啦）
 
+Twitter：[@Missa_www](https://twitter.com/Missa_www)（不常用）
+
+Instagram：[@akiakutaji](https://www.instagram.com/akiakutaji/)（不常用）
+
 Steam: [414784280](https://steamcommunity.com/profiles/76561198375050008/)（欢迎加我好友，我好友好少噢）
 
 Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没玩了，果咩纳塞）
 
 ### 游戏相关
 
-我玩游戏很杂，而且都是周期性的，一周沉迷一个这样，而且都挺菜的（
+我玩游戏很杂，而且都是周期性的，一周沉迷一个这样，且都挺菜的（
 
 现在在玩的：
 
@@ -37,7 +41,7 @@ Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没�
 
 - 炉石传说：秋芥子#5235（之前是猎人快攻分奴，现在偶尔上去打打冒险模式）
 - 百闻牌：[莉丝特秋酱](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcZC0zUSOpfbljNei*raBBNjPBc*k*t*gcA4ODaY7G7m7ykswgKlCwOOZ4eK1AeqaZydABqBPyp1zfbmrC2Rn38M!/r)（疫情期间最爱的游戏之一，每天疯狂上分，后来也没怎么玩了）
-- LOL 艾欧尼亚（不放id了战绩太菜了不好意思给人看）喜欢[S7S8时候的RNG](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcUg2Vqp*lwVgaLvMHcqt6H*VZibdnf5nvo8.0OuenFebk8jUmGLIOdbXUAvjup*jfu2SdIqbH2lwKAxPd5kZ9kM!/r)，去上海看了[春季赛](https://weibo.com/1928723543/G5kxUEWGm?from=page_1005051928723543_profile&wvr=6&mod=weibotime&type=comment#_rnd1606401545421)，还有[粉丝采访](https://weibo.com/5756404150/G6zL7mrjr?from=page_1005055756404150_profile&wvr=6&mod=weibotime&type=comment)（在25秒左右）
+- LOL 艾欧尼亚（不放id了战绩太菜了不好意思给人看）喜欢[S7S8时候的RNG](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcUg2Vqp*lwVgaLvMHcqt6H*VZibdnf5nvo8.0OuenFebk8jUmGLIOdbXUAvjup*jfu2SdIqbH2lwKAxPd5kZ9kM!/r)，去上海看了[春季赛](https://weibo.com/1928723543/G5kxUEWGm?from=page_1005051928723543_profile&wvr=6&mod=weibotime&type=comment#_rnd1606401545421)，还有[粉丝采访](https://weibo.com/5756404150/G6zL7mrjr?from=page_1005055756404150_profile&wvr=6&mod=weibotime&type=comment)（在25秒左右）以及最近特别喜欢KDA女团！狐狸老本命了
 - 明日方舟：[秋芥子様#9557](http://m.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5jbo.hJ4F.SqQjbBpSqHcKdnml4dxe7hHQ*LrlQA7ydHtORZ.DvW0hN5tqMB.rCOpjlKu2lpZmOvE4KZrO6rOMY!/b&bo=BAXSAgQF0gIDCSw!&rf=viewer_4)
 - 少女前线 ios：[秋芥子様](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5gZ1dS75V3jv*1jFlonppiNtKCNGolfNHE1LG75f4FZFzHKD7J1wxo.T0gf*mBo4WANFCjZ7cP5cCcsjDNXQSf0!/b&ek=1&kp=1&pt=0&bo=*we*BP8HvwQBKQ4!&tl=3&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4)
 - 奇迹暖暖 ios：[啊秋秋](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcZC0zUSOpfbljNei*raBBNh103Gt3iPqP3v3XTGRC8orRUfL.r0vPYcm0KyN8ivjwWnVsSE3irHcPklOWHx9qfk!/r)（贵8满级...以前连着玩了好几年）
