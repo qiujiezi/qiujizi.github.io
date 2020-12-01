@@ -36,6 +36,8 @@ Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没�
 - 雀魂：60494110 （很菜，初心三这样）
 - 符文工房4（好姐妹推荐的，当时正好无聊就去试了试妹想到一直玩到现在）
 - 彩虹六号：akiakutaji（非常菜，不建议带我）
+- 奇迹暖暖 ios：[啊秋秋](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcZC0zUSOpfbljNei*raBBNh103Gt3iPqP3v3XTGRC8orRUfL.r0vPYcm0KyN8ivjwWnVsSE3irHcPklOWHx9qfk!/r)（贵8满级...以前连着玩了好几年）（最近又开始玩了）
+- Among us：好玩
 
 #### 以前沉迷过现在已经不怎么玩了的（但是以后可能会继续玩）：
 
@@ -44,7 +46,7 @@ Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没�
 - LOL 艾欧尼亚（不放id了战绩太菜了不好意思给人看）喜欢[S7S8时候的RNG](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcUg2Vqp*lwVgaLvMHcqt6H*VZibdnf5nvo8.0OuenFebk8jUmGLIOdbXUAvjup*jfu2SdIqbH2lwKAxPd5kZ9kM!/r)，去上海看了[春季赛](https://weibo.com/1928723543/G5kxUEWGm?from=page_1005051928723543_profile&wvr=6&mod=weibotime&type=comment#_rnd1606401545421)，还有[粉丝采访](https://weibo.com/5756404150/G6zL7mrjr?from=page_1005055756404150_profile&wvr=6&mod=weibotime&type=comment)（在25秒左右）以及最近特别喜欢KDA女团！狐狸老本命了
 - 明日方舟：[秋芥子様#9557](http://m.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5jbo.hJ4F.SqQjbBpSqHcKdnml4dxe7hHQ*LrlQA7ydHtORZ.DvW0hN5tqMB.rCOpjlKu2lpZmOvE4KZrO6rOMY!/b&bo=BAXSAgQF0gIDCSw!&rf=viewer_4)
 - 少女前线 ios：[秋芥子様](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5gZ1dS75V3jv*1jFlonppiNtKCNGolfNHE1LG75f4FZFzHKD7J1wxo.T0gf*mBo4WANFCjZ7cP5cCcsjDNXQSf0!/b&ek=1&kp=1&pt=0&bo=*we*BP8HvwQBKQ4!&tl=3&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4)
-- 奇迹暖暖 ios：[啊秋秋](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcZC0zUSOpfbljNei*raBBNh103Gt3iPqP3v3XTGRC8orRUfL.r0vPYcm0KyN8ivjwWnVsSE3irHcPklOWHx9qfk!/r)（贵8满级...以前连着玩了好几年）
+- FF14 暗影群岛：主线都没跑完就弃了，居然还买了好几套衣服还有坐骑x 
 - 闪耀暖暖 台服：（施工ing）
 
 ### 联系方式
