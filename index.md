@@ -17,7 +17,7 @@ _更新日期：2020.12.1_
 
 微博：[@秋芥子](https://weibo.com/fighting51?topnav=1&wvr=6&topsug=1&is_all=1)
 
-Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （以前更新过一些手账、少女前线、PCR相关的视频，现在很久没更新啦）
+Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （以前更新过一些手账、少女前线、PCR相关的视频，最近更新了vlog和宅舞，可以的话想求个三连嘿嘿）
 
 Twitter：[@Missa_www](https://twitter.com/Missa_www)（不常用）
 
@@ -25,7 +25,9 @@ Instagram：[@akiakutaji](https://www.instagram.com/akiakutaji/)（不常用）
 
 Steam: [414784280](https://steamcommunity.com/profiles/76561198375050008/)（欢迎加我好友，我好友好少噢）
 
-Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没玩了，果咩纳塞）
+Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没玩了）
+
+小红书：607285779（本来只是想每天学习打卡的，结果[我发的打卡一个赞都没有，自拍400+](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcUolPwVaTTXT9KANqHDB4T02UPGlITJ9mOiZbes*uU7u3HQ4bfCl0yxMh982nXKRgpFXi0R4gm2ytHOt0nR8nJs!/r)，没有学习的动力了）
 
 ### 游戏相关
 
@@ -33,7 +35,7 @@ Switch：SW-1444-6487-3118 （联机的目前只玩过动森，而且很久没�
 
 #### 现在在玩的：
 
-- PCR国服：[Akiko](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5uUyO79EleW56*nHziOXZhcHijh2*3RXlU9erLNQcS7PsGL8gCPRotkfscD1sFfw0mnxY5wiFo6g25hNWYjv5FU!/b&ek=1&kp=1&pt=0&bo=gwc4BAAAAAADZ*o!&tl=1&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4) （虽然这游戏还没有好友系统）工会：稚年
+- PCR国服：[Akiko](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5uUyO79EleW56*nHziOXZhcHijh2*3RXlU9erLNQcS7PsGL8gCPRotkfscD1sFfw0mnxY5wiFo6g25hNWYjv5FU!/b&ek=1&kp=1&pt=0&bo=gwc4BAAAAAADZ*o!&tl=1&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4) （虽然这游戏还没有好友系统）工会：安之若素
 - 雀魂：60494110 （很菜，初心三这样）
 - 符文工房4（好姐妹推荐的，当时正好无聊就去试了试妹想到一直玩到现在）
 - 彩虹六号：akiakutaji（非常菜，不建议带我）
